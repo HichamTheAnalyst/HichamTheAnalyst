@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Hicham Nouhaidi.
+- 👀 I’m interested in data science
+- 🌱 I’m currently learning data science
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me (https://www.linkedin.com/in/hicham-nouhaidi-963545265)
+- 😄 Pronouns: tiger
+- ⚡ Fun fact: I'm creative!
