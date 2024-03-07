@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me (https://www.linkedin.com/in/hicham-nouhaidi-963545265)
 - 😄 Pronouns: tiger
-- ⚡ Fun fact: I'm creative!
+- ⚡ Fun fact: Doing Hard thing
