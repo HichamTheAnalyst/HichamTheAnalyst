@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning data science
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me (https://www.linkedin.com/in/hicham-nouhaidi-963545265)
-- 😄 Pronouns: tiger
+- 😄 Pronouns: Sigma
 - ⚡ Fun fact: Doing Hard thing
